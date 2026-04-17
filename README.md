@@ -1,16 +1,14 @@
-## Hi there 👋
+Are you dealing with a malfunctioning appliance and looking for expert appliance repair in Columbus, IN? Look no further than Mr. Appliance of Columbus, IN! Our team of skilled technicians specializes in appliance repair, ensuring that your kitchen and laundry appliances work at their best again. Whether it's a refrigerator, dishwasher, or washing machine that's giving you trouble, we diagnose and fix the problem swiftly and effectively. 
 
-<!--
-**mrappliancecolumbusin/mrappliancecolumbusin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Customer satisfaction is our top priority, and we take pride in offering reliable service. With our dedication to exceptional customer service and quality workmanship, you can rest assured that we'll have your appliances fixed in no time. Call us today at 812-302-2918 to schedule your appliance repair and return to your routine without hassle!
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Contact us:
+
+Mr. Appliance of Columbus, IN
+
+2950 Weald Street, Greenwood, Indiana 46143
+
+812-302-2918
+
+https://www.mrappliance.com/columbus-in/ 
